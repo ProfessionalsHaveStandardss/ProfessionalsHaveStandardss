@@ -1,4 +1,4 @@
-## Hallo im Matthew or Snipes either name is fine!!!
+## Hallo im Matthew / Snipes / Dove either name is fine!!!
 
 $\Large\color{#632230}{\textsf{speedingbullet enthusiast}}$
 
