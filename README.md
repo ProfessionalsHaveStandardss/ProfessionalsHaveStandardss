@@ -7,7 +7,11 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 
 <p align="center">
 Hallo im usually really socially awkward and shy, im also very anxious
-and tend to think alot of people hate me whether thats oomf or a total stranger!! I can be social sometimes tho, ya gotta let me know if i am because i do get really annoying when im social Im like a bloody drunk scottish person! 
+and tend to think alot of people hate me whether thats oomf or a total stranger!! I can be social sometimes tho, ya gotta let me know if i am because i do get really annoying when im social Im like a bloody drunk scottish person!
+
+ <p align="center">
+ im a heavy blu sniper/ blu scout kin and im not the biggest fan of doubles, i selfship with red sniper and scout lawl (i like selfcest and speedingbullet if that isnt obvious)
+ also im a selective sharing selfshipper
 
 <p align="center">
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
