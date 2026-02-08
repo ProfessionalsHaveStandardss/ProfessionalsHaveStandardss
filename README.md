@@ -27,4 +27,6 @@ and tend to think alot of people hate me whether thats oomf or a total stranger!
 
 <img width="90" height="90" alt="image" src="https://64.media.tumblr.com/80e0c59c6adde7893a4300b75732b786/aad6db1143d2fbd8-40/s2048x3072/c172347925bad413fb7cfa5089be6d0f6085d11f.gifv" />  <img width="90" height="90" alt="image" src="https://64.media.tumblr.com/6ee0a99def6b2cbc2a487005f1e9c171/6331bbcac740ce8f-84/s250x400/9219debff0a9ca7e941f118a03cbe7987e217a60.webp" /> 
 
+
+this is a wip kill me
  
