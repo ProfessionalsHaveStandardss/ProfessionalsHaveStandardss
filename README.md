@@ -18,7 +18,7 @@ i do really like to interact with poeple despite my shyness because i love havin
 
  
  <p align="center">
-Boundries, please do not cover me!! i dont like it at all and please dont make fun of my typing quirk that i do soemtimes without realizing. I cannot help it! Dont boop me either <33
+Boundries, please do not cover me!! i dont like it at all and please dont make fun of my typing quirk that i do sometimes without realizing. I cannot help it! Dont boop me either <33
 
   <p align="center">
  im a heavy karkat, sniper, scout kin! Not a big fan of doubles unless i say so tbf, if you want way more info about me my strawpage is always an option (wip atm)
