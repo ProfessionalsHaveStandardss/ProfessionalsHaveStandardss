@@ -11,8 +11,16 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 <p align="center">
 Hallo im usually really socially awkward and shy, im also very anxious
 and tend to think alot of people hate me whether thats oomf or a total stranger!! I can be social sometimes tho, ya gotta let me know if i am because i do get really annoying when im social Im like a bloody drunk scottish person!
+i do really like to interact with poeple despite my shyness because i love having friends, i also LOVEE TO SIT BY PEOPLE ALWAYS FEEL FREE TO C+H ANYTIME WITH ME I HAVE A HEAVY TOUCH COMFORTTT
 
  <p align="center">
+  Sometimes i can come off as rude and i dont mean that at all, if i do sound like im being rude point me out and i'll stop!
+
+ 
+ <p align="center">
+Boundries, please do not cover me!! i dont like it at all and please dont make fun of my typing quirk that i do soemtimes without realizing. I cannot help it! Dont boop me either <33
+
+  <p align="center">
  im a heavy karkat, sniper, scout kin! Not a big fan of doubles unless i say so tbf, if you want way more info about me my strawpage is always an option (wip atm)
 
 <p align="center">
