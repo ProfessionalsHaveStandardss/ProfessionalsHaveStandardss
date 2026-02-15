@@ -16,12 +16,13 @@ i do really like to interact with poeple despite my shyness because i love havin
  <p align="center">
   Sometimes i can come off as rude and i dont mean that at all, if i do sound like im being rude point me out and i'll stop!
 
+plpspslpllss int with me if you like speedingbullet or sniper x soldierrr dafjnjhfdjhdsifdnsjj
  
  <p align="center">
 ass pancakes and piss cakehole no1 fan cant tell me otherwise
 
   <p align="center">
- im a heavy karkat, sniper, scout kin! Not a big fan of doubles unless i say so tbf, if you want way more info about me my strawpage is always an option (wip atm)
+ im a heavy karkat, sniper, scout kin! Not a big fan of doubles unless i say so tbf, if you want way more info about me my strawpage is always an option
 
 <p align="center">
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
