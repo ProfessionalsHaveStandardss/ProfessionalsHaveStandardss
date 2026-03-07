@@ -1,4 +1,4 @@
-## Hallo im PANCAKES / Snipes / Dove either name is fine!!!
+## idk call me (ass) Pancakes
 
 <p align="center">
 $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
